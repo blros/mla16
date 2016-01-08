@@ -1,5 +1,7 @@
 ## 406. Developing and Sustaining Collaborative Research in the Humanities
 
+### Link to this page: http://bit.ly/mla16-collab-research
+
 Friday, 8 January, 5:15–6:30 p.m., 304, JW Marriott  
 
 A special session  
